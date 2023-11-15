@@ -1,0 +1,1 @@
+In 1755, the first Canadian post office opened in Halifax, Nova Scotia. The fist Deputy Postmaster General was American inventor Benjamin Franklin who was later dismissed for sympathizing with the American revolutionary cause
