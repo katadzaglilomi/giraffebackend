@@ -1,0 +1,1 @@
+The reason why locusts swarm are because when they are in groups, a "hot-spot" behind their hind legs is stimulated, which in turn causes their destructive nature. A large swarm of locusts can eat eighty thousand tons of corn in a day
