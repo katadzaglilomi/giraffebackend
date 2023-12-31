@@ -1,0 +1,1 @@
+Male sea horses are the ones that get impregnated rather than the females. Males have a pouch on their belly that provides incubation for the female?s eggs and they can have up to 1500 babies at one time
