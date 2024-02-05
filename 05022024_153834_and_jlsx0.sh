@@ -1,0 +1,1 @@
+Dumbest Dog: Afghan hound
