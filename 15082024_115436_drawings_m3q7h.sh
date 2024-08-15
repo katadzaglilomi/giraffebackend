@@ -1,0 +1,1 @@
+The 1912, a wrestling match in Stockholm between Finn Alfred Asikainen and Russian Martin Klein lasted more than 11 hours. Klein eventually won, but was to tired to participate in the championship match
