@@ -1,0 +1,1 @@
+The reason why the Canadian Arctic is called the "Land of the Midnight Sun" is because during the summer many communities have light 24 hours of the day. Many people have to cover their windows with tin foil to keep the light out when they sleep
